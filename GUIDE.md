@@ -1,1 +1,1 @@
-Étape 1 : Installation.
+Étape 1 : Installation complète.
